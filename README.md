@@ -1,1 +1,0 @@
-# medisofttech.com
